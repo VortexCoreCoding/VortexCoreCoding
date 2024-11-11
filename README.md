@@ -2,7 +2,6 @@
 - 👀 I’m interested in making video games (yippee)
 - 🌱 I’m currently learning unity
 - 💞️ I’m looking to collaborate on anything simple lol
-- 📫 Email me at logan.spinali@wsu.edu
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I make music too
 
